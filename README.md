@@ -1,6 +1,6 @@
 # 杜卡迪机场官网地址
 
-最新地址：[dukadi.one](https://www.dukadi.one/#/register?code=2tpoqciI)
+最新地址：[dukadi.one](https://www.dukadi.xyz/#/register?code=2tpoqciI)
 
 ## 杜卡迪机场介绍
 
